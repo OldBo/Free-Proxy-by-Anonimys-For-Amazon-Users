@@ -7,4 +7,4 @@
 
 
 
-![Image alt](https://procoder.su/attachments/28/)
+![Image alt](https://github.com/OldBo/Free-Proxy-by-Anonimys-For-Amazon-Users/blob/master/fbqY8MZ.gif)
